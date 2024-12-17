@@ -1,1 +1,1 @@
-![Uploading image.png…]()
+![Uploading Снимок экрана 2024-12-17 225424.png…]()
