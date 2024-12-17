@@ -1,1 +1,1 @@
-![Uploading Снимок экрана 2024-12-17 225424.png…]()
+![image](https://github.com/user-attachments/assets/c841489e-ceec-404b-963a-b10765c70732)
